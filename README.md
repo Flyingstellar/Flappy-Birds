@@ -1,1 +1,1 @@
-ALL ARE GAE 
+ALL ARE GAE ok nega
